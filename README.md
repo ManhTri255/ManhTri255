@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ManhTri255
 - 👀 I’m interested in code and everything
 - 🌱 I’m currently learning at university
-- 📫 How to reach me at facebook: https://www.facebook.com/manhtri.vu.04
+- 📫 Reach me at facebook: https://www.facebook.com/manhtri.vu.04
 - ⚡ Fun fact: 
 I have ocd
 
